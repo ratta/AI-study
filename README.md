@@ -11,4 +11,14 @@ Oh! I think I got it!!!
 
 One more time!!!
 
+Hello!!!
+
+Gonnichiwa
+
+Nihao
+
+Ohaio by Byeongwook
+
 20181217
+
+SJSJSJSJ
