@@ -16,3 +16,15 @@ Hello!!!
 Gonnichiwa
 
 Nihao
+
+Ohaio by Byeongwook
+
+20181217
+
+SJSJSJSJ
+
+HAHAHAHAHHAHAHHAHAHAHHAHAHAHAHAH
+
+Helloooooooooooo
+
+20181225 Merry Christmas!!
