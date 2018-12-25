@@ -19,8 +19,4 @@ Nihao
 
 Ohaio by Byeongwook
 
-20181217
 
-SJSJSJSJ
-
-안녕병욱아!
