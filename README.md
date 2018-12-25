@@ -19,6 +19,7 @@ Nihao
 
 Ohaio by Byeongwook
 
+<<<<<<< HEAD
 20181217
 
 SJSJSJSJ
@@ -28,3 +29,6 @@ HAHAHAHAHHAHAHHAHAHAHHAHAHAHAHAH
 Helloooooooooooo
 
 20181225 Merry Christmas!!
+=======
+Ohaio2
+>>>>>>> b7a8b519784011ae92dece307cacff3e5a699d89
